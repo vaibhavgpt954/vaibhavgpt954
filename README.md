@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vaibhavgpt954
 - 👀 I’m interested in Business Analyst
 - 🌱 I’m currently working freelancing projects
-- 💞️ I’m looking to work with company
+- 💞️ I’m looking for business analyst job
 
 
 <!---
